@@ -1,1 +1,0 @@
-# Covid-19-Self-Care-and-Vaccine-Tracker
